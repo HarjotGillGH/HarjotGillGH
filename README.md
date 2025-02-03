@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me - send me a message on discord or github
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I got bucked off a camel once lol
+- ⚡ Fun fact: I got bucked off a camel once! 🐫
 
 <!---
 HarjotGillGH/HarjotGillGH is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
